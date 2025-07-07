@@ -14,4 +14,4 @@
 
 为了保护个人隐私，很多用户会使用VPN，这样不仅可以绕过地区限制，还能避免泄露浏览记录。在使用这些资源站时，也要注意不要随便点击广告或下载不明软件，以免导致病毒感染或信息泄露。总之，选择一个更新及时、分类清晰、广告少且播放流畅的站点，再结合VPN保护隐私，就能安全、便捷地享受免费的日本AV资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/jd20250707/jd2 ）</span>
